@@ -1,4 +1,10 @@
-#Hi I'm Mr.scriptkiddie004 
-#Team:Indonesia Black Hat Hacker
-#Do you like our tools?
-#If you like it, don't forget to star and follow our social media or You can also join us at https://scriptkiddie004.wordpress.com/join/
+Selamat datang di github kami kunjungi juga website kami https://linktr.ee/ArmyBeast
+
+
+
+
+
+
+
+
+Kami adalah Army Beast, kami kelompok, kami anonim, harapkan kami
